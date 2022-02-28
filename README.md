@@ -17,3 +17,6 @@ di hola bambi
 ## menu week dave 3d vs bambi 
 ![here](https://cdn.discordapp.com/attachments/947926804809797653/947942942285373480/menu_bambi_song.png)
 oh no dave se puso tres dee
+por lo menos bambi no
+
+toca que esta edicion tenga 872383298932982389239828932389239823 forks
