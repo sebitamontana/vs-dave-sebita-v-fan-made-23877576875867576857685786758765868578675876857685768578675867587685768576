@@ -12,3 +12,5 @@ porfa dile hola
 [Mind Games Mod lol](https://gamebanana.com/mods/301107),
 ## bambi
 ![Bambi](https://cdn.discordapp.com/attachments/947926804809797653/947942094843039804/bambi_pues_asasaswswsawsawawswas.png)
+## menu week dave 3d vs bambi 
+![here](https://cdn.discordapp.com/attachments/947926804809797653/947942942285373480/menu_bambi_song.png)
