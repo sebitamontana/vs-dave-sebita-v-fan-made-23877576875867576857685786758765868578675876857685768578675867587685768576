@@ -8,5 +8,6 @@ di hola dave
 porfa dile hola
 
 ## song ssaasas
-![Dave](https://cdn.discordapp.com/attachments/947926804809797653/947927056258334720/Inst.ogg)
+[song](https://cdn.discordapp.com/attachments/947926804809797653/947927056258334720/Inst.ogg),
+[Mind Games Mod lol](https://gamebanana.com/mods/301107),
 
