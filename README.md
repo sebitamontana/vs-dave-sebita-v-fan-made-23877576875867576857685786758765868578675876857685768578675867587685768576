@@ -10,4 +10,5 @@ porfa dile hola
 ## song ssaasas
 [song](https://cdn.discordapp.com/attachments/947926804809797653/947927056258334720/Inst.ogg),
 [Mind Games Mod lol](https://gamebanana.com/mods/301107),
-
+## bambi
+![Bambi](https://cdn.discordapp.com/attachments/947926804809797653/947942094843039804/bambi_pues_asasaswswsawsawawswas.png)
